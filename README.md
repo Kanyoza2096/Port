@@ -334,4 +334,4 @@ If you have questions or need help customizing the portfolio:
 
 ---
 
-Built with ❤️ by [Kanyoza Innocent](https://kanyozatech.com)# Port
+Built with ❤️ by [Kanyoza Madalitso](https://kanyozatech.com)# Port
